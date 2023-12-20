@@ -1,1 +1,2 @@
-# huy-vs-canh-
+Nguyễn Huy Cảnh 2180606077
+Văn Công Huy 2180606554
